@@ -34,7 +34,7 @@
 ## 📫 Let's Connect!  
 - 🌐 [Website](https://www.octalcode.com/)  
 - 💼 [LinkedIn](https://www.linkedin.com/in/waqas)  
-- ✉️ Email: waqas@octalcode.com  
+- ✉️ Email: waqas12@gmail.com
 
 ---
 
